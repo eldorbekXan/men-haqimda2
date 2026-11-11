@@ -1,0 +1,6 @@
+\#Eldorbek Mirzajonov
+
+\-dizayner
+
+\-dasturchi
+
